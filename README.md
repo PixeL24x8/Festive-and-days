@@ -43,10 +43,3 @@ Please do not copy or redistribute without permission.
 Celebrating festivals through design.  
 — Team Pixel 24×8
 
-These creatives are shared for **showcase and inspiration** only.  
-Please do **not copy or redistribute** without permission.
-
----
-
-Celebrating festivals through design.  
-— *Team Pixel 24×8*
